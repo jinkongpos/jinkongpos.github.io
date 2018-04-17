@@ -7,5 +7,3 @@
 ป๚ฦ๗รโทัหอ
 
 Wechat:10901891
-
-# jinkongpos.github.io
